@@ -1,0 +1,1 @@
+# Candies-landing__adaptive
